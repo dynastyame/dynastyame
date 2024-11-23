@@ -1,6 +1,6 @@
-                                  🧑‍💻dynastyame - experienced coder
+                                  🧑‍💻ｄｙｎａｓｔｙａｍｅ － ｅｘｐｅｒｉｅｎｃｅｄ ｃｏｄｅｒ
 
-                                               Languages 
+                                                  𝗟𝗮𝗻𝗴𝘂𝗮𝗴𝗲𝘀 
 ![image](https://github.com/user-attachments/assets/dccc4471-8715-4b68-bb14-9cf19f2296b7)
 ![image](https://github.com/user-attachments/assets/5f115e3b-399a-4aaf-9229-05accaa43ea6)
 ![image](https://github.com/user-attachments/assets/58eb6612-fa4b-499b-9c11-7f4962eb5803)
